@@ -1,1 +1,0 @@
-# Sobre-mi-y-Curriculum-Vitae
